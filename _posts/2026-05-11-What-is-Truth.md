@@ -1,9 +1,10 @@
 ---
 title: "Sermon: What is Truth?"
 date: 2026-05-11
+author: ""
 ---
 
-Note: This message was a sermon on 05/11/2026 at Full Gospel Church Youth
+This message was a sermon on 11 MAY 2026 at FGC Youth
 
 Praise God, Church
 
