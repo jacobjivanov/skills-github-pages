@@ -37,6 +37,7 @@ Now, John records Jesus making seven statements similar to this:
 - "I am the resurrection and the life"
 - "I am the way and the truth and the life"
 - "I am the true vine"
+
 Some of these are more clear than others. Jesus is 'the door' in the sense that He is the means by which we have access to the Father. Jesus is "the good shepherd", because like a shepherd, He cares for us, and leads us. But how can Jesus be THE truth? Was He just saying that what He said was true? Or maybe He was speaking for those in the future to know that He really did exist? I don't believe this is the full meaning of what Jesus is saying. 
 
 I would like to read three other passages in the New Testament that further elaborate on who exactly Jesus is.
@@ -62,9 +63,13 @@ Jesus Christ is THE truth. He upholds this universe, holds the molecules and sta
 Before Him we are dust, unholy rebels. Even our best is like disgusting, bloody, filthy rags in comparison to the true glory of God. We deserve nothing. We deserve only wrath for disobeying Him. And yet, in spite of our unworthiness, Jesus Christ, the eternal Son of God was born of the virgin Mary, lived a sinless life, was crucified under Pontius Pilate, He suffered and was buried, and on the third day, He rose again, according to the Scriptures. Think about this contrast. Unimaginable mercy. Amazing grace. 
 
 If you are in pain, look at the cross, where Christ was wounded and pierced for our transgressions.
+
 If you are anxious and need stability, look at the cross of Calvary, that rugged hill of Hell’s defeat.
+
 If you are afraid, look at the cross, where the man who sweat blood died for you.
+
 If you need courage, look at the cross, where Christ crushed the ancient serpent.
+
 If you need forgiveness, look at the cross, where Christ took the sin of the world upon himself and gave you His righteousness.
 
 And never forget that three days later, Christ rose out of the grave, conquered death, and now death has no sting. Amen!
