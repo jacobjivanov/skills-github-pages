@@ -1,9 +1,8 @@
 ---
 title: "Sermon: What is Truth?"
 date: 2026-05-11
-author: ""
+author: "Jacob Ivanov"
 ---
-
 This post is a transcript of a sermon at 11 MAY 2026 at FGC Youth
 
 Praise God, Church
