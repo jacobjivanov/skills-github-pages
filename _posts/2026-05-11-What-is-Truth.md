@@ -4,7 +4,7 @@ date: 2026-05-11
 author: ""
 ---
 
-This message was a sermon on 11 MAY 2026 at FGC Youth
+This post is a transcript of a sermon at 11 MAY 2026 at FGC Youth
 
 Praise God, Church
 
