@@ -6,7 +6,7 @@ author: "Jacob Ivanov"
 
 This post is a transcript of a sermon from FGC Youth on 11 MAY 2026
 
-***
+<div style="border-top: 1px solid #777; margin: 30px 0;"></div>
 
 Praise God, Church
 
