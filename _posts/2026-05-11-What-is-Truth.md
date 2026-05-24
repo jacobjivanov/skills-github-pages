@@ -79,31 +79,34 @@ What does this mean for us, and our small little problems? It means we don't hav
 As we get ready to pray, I would like to conclude by reading the lyrics to a song that has been a great comfort to me in times when life feels confusing or foggy. It is a reminder of the foundation of our faith.
 
 *How Deep the Father's Love* by Stuart Townsend
-> How deep the Father's love for us,
-> How vast beyond all measure,
-> That He should give His only Son
-> To make a wretch His treasure.
-> How great the pain of searing loss -
-> The Father turns His face away,
-> As wounds which mar the Chosen One
-> Bring many sons to glory.
+> How deep the Father's love for us,  
+> How vast beyond all measure,  
+> That He should give His only Son  
+> To make a wretch His treasure.  
 > 
-> Behold the man upon a cross,
-> My sin upon His shoulders;
-> Ashamed, I hear my mocking voice
-> Call out among the scoffers.
-> It was my sin that held Him there
-> Until is was accomplished;
-> His dying breath has brought me life -
-> I know that it is finished.
+> How great the pain of searing loss -  
+> The Father turns His face away,  
+> As wounds which mar the Chosen One  
+> Bring many sons to glory.  
 > 
-> I will not boast in anything,
-> No gifts, no power, no wisdom;
-> But I will boast in Jesus Christ;
-> His death and resurrection.
-> Why should I gain from His reward?
-> I cannot give an answer;
-> But this I know with all my heart -
-> His wounds have paid my ransom.
+> Behold the man upon a cross,  
+> My sin upon His shoulders;  
+> Ashamed, I hear my mocking voice  
+> Call out among the scoffers.  
+> 
+> It was my sin that held Him there.  
+> Until is was accomplished;  
+> His dying breath has brought me life -  
+> I know that it is finished.  
+> 
+> I will not boast in anything,  
+> No gifts, no power, no wisdom;  
+> But I will boast in Jesus Christ;  
+> His death and resurrection.  
+> 
+> Why should I gain from His reward?  
+> I cannot give an answer;  
+> But this I know with all my heart -  
+> His wounds have paid my ransom.  
 
 Let's pray
